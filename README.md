@@ -1,1 +1,1 @@
-# zeeshanejaz786.github.io
+At Qureshi Creative Co., we redefine the digital landscape, propelling businesses into the future through innovative IT solutions. As a leading digital and IT company, we take pride in our commitment to excellence, transforming ideas into impactful realities.
